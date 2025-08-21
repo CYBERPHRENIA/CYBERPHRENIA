@@ -43,7 +43,7 @@ INTERESTS🍬
 
 OCS/AU: I love hearing about it and helping for ideas, even do crossovers and/or rp. (plz, plz, plz)
 
-AESTHETICS/FASHIONS - Cutegore, Scene, Emo, Pastel Goth, Weirdcore, Dreamcore, Internetcore, Cryptidcore, Nightcore, Jirai-Kei, 2020 alt, fleshcore
+AESTHETICS/FASHIONS/LIFESTYLE - Cutegore, Scene, Emo, Pastel Goth, Weirdcore, Dreamcore, Internetcore, Cryptidcore, Nightcore, Jirai-Kei, 2020 alt, fleshcore
 
 TV/MEDIAS - Creepypastas, Marble Hornets, SCP, Spirited Away, Murder Drones, The Amazing Digital Circus, K-Pop Demon Hunters, Hazbin Hotel, Helluva Boss, Psychocuties, any horror psychological or ‘fantasy’ movie/series…
 
