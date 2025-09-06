@@ -28,11 +28,11 @@ DO NOT INTERACT🔪
 
 × ANTI-FURRIES, ANTITHERIANS OR ANTIALTERHUMANS 
 
-× TROLLS
+× TROLLS, depends tbh-
 
 × NO RELIGION FORCING, I'm happy with my own as a Satanist and Mother Earth believer
 
-× PROSHIPPERS OR ANY OTHER OF THAT KIND
+× PROSHIPPERS OR ANY OTHER OF THAT KIND, hope the best healing and help for y'all tho
 
 × OVER 20 AND UNDER 13, THE BODY'S STILL A MINOR
 
@@ -57,6 +57,6 @@ RESTART FILE...
 
 I DO NOT SUPPORT THE ACTIONS OF ANYONE/ANYTHING PROBLEMATIC OBVIOUSLY OR AM PART OF SOME FANDOM, I JUST ENJOY THE CREATIONS.
 
-Except cannibalism maybe-🔪 /j
+Except cannibalism maybe-🔪 
 
 ![image](https://files.catbox.moe/zq7ryv.jpeg)
