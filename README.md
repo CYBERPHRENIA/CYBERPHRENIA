@@ -14,7 +14,7 @@ Glimpse of our vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
 -->
 🌙/🟢: Online // ⛔️: AFK or busy w/ skins (W2I then)
 
-Neurodivergent disordered queer plural and alterhuman [ask if curious]
+Neurodivergent queer plural and alterhuman [ask if curious]
 
 Don't request until we've talked a bit.
 
@@ -35,6 +35,8 @@ DO NOT INTERACT🔪
 × PROSHIPPERS OR ANY OTHER OF THAT KIND, hope the best healing and help for y'all tho
 
 × OVER 20 AND UNDER 13, THE BODY'S STILL A MINOR
+
+If you're gonna judge my actions in general just DNI, I know I have problems. You're not fixing it by commenting on it.
 
 ![image](https://files.catbox.moe/7b71cc.jpeg)
 
