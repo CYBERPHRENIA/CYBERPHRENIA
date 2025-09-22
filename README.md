@@ -18,7 +18,7 @@ Neurodivergent queer plural and alterhuman [ask if curious]
 
 Don't request until we've talked a bit.
 
-Ame-chan/KAngel fictkins ((send help) actually no-))
+Ame-chan/KAngel and Fischl fictkins ((send help) actually no-))
 
 DO NOT COVER, COPY OR CUDDLE! - Cuddles are okay as long as there’s C+H in my name. I can accept to be covered from GOOD friends. Taking inspo from my skins is okay, but do not copy or post without having my permission.
 
