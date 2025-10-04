@@ -16,9 +16,9 @@ Glimpse of our vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
 
 Neurodivergent queer plural and alterhuman [ask if curious]
 
-Don't request until we've talked a bit.
+Don't friend request until we've talked a bit. Feel free to interact after reading!
 
-your actual Ame-chan/KAngel fictkin!💕 ((send help) actually no-))
+your actual Ame-chan/KAngel & Mimikyu fictkin!💕 ((send help) actually no-))
 
 DO NOT COVER, COPY OR CUDDLE! - Cuddles are okay as long as there’s C+H in my name. I can accept to be covered from GOOD friends. Taking inspo from my skins is okay, but do not copy or post without having my permission.
 
@@ -49,7 +49,7 @@ OCS/AU: I love hearing about it and helping for ideas, even do crossovers and/or
 
 AESTHETICS/FASHIONS/LIFESTYLE - Cutegore, Scene, Emo, Pastel Goth, Weirdcore, Dreamcore, Internetcore, Cryptidcore, Nightcore, Jirai-Kei, 2020 alt, fleshcore
 
-TV/MEDIAS - Creepypastas, Marble Hornets, SCP, Spirited Away, Murder Drones, The Amazing Digital Circus,Knight Of Guinevere, K-Pop Demon Hunters, Hazbin Hotel, Helluva Boss, Psychocuties, any horror psychological or ‘fantasy’ movie/series…
+TV/MEDIAS - Creepypastas, Marble Hornets, SCP, Spirited Away, Murder Drones, Ninjago, The Amazing Digital Circus, Knight Of Guinevere, K-Pop Demon Hunters, Hazbin Hotel, Helluva Boss, Psychocuties, any horror psychological or ‘fantasy’ movie/series…
 
 MANGAS/ANIME - Toilet Bound Hanako-Kun, Demon Slayer, My Hero Academia, Pokemon, Bungou Stray Dog, Gushing Over Magical Girls, Cyberpunk Edgerunners, Takopi Original Sin, Several Experiments Lain...
 
