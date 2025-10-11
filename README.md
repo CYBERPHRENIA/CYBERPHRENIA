@@ -14,7 +14,7 @@ Glimpse of our vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
 -->
 🌙/🟢: Online // ⛔️: AFK or busy w/ skins (W2I then)
 
-*Hello internet cherubs, this is Cyberphrenia on the line, the one and only! 1-2, 1-2, can you receive me? We're a system of troubled souls but trying to be the sweetest. You may interact after reading and ask anything if you're curious!* 
+*Hello internet cherubs, this is Cyberphrenia on the line! You may interact after reading and ask anything if you're curious!* 
 
 Your actual Ame-chan/KAngel & Mimikyu fictkin!💕 ((send help) actually no-))
 
