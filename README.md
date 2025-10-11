@@ -14,11 +14,9 @@ Glimpse of our vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
 -->
 🌙/🟢: Online // ⛔️: AFK or busy w/ skins (W2I then)
 
-Neurodivergent queer plural and alterhuman [ask if curious]
+*Hello internet cherubs, this is Cyberphrenia on the line, the one and only! 1-2, 1-2, can you receive me? We're a system of troubled souls but trying to be the sweetest. You may interact after reading and ask anything if you're curious!* 
 
-Don't friend request until we've talked a bit. Feel free to interact after reading!
-
-your actual Ame-chan/KAngel & Mimikyu fictkin!💕 ((send help) actually no-))
+Your actual Ame-chan/KAngel & Mimikyu fictkin!💕 ((send help) actually no-))
 
 DO NOT COVER, COPY OR CUDDLE! - Cuddles are okay as long as there’s C+H in my name. I can accept to be covered from GOOD friends. Taking inspo from my skins is okay, but do not copy or post without having my permission.
 
@@ -30,13 +28,11 @@ DO NOT INTERACT🔪
 
 × ANTI-FURRIES, ANTITHERIANS OR ANTIALTERHUMANS 
 
-× TROLLS, depends tbh-
+× TROLLS/CREEPS and such wannabefunny but aren't -3-
 
 × NO RELIGION FORCING, I'm happy with my own as a Satanist and Mother Earth believer
 
-× PROSHIPPERS, hope the best healing and help for y'all tho
-
-× OVER 20 AND UNDER 13, THE BODY'S STILL A MINOR
+× OVER 21 AND UNDER 13, THE BODY'S STILL A MINOR
 
 If you're gonna judge my actions in general just DNI, I know I have problems. You're not fixing it by commenting on it.
 
@@ -47,7 +43,7 @@ INTERESTS🍬
 
 OCS/AU: I love hearing about it and helping for ideas, even do crossovers and/or rp. (plz, plz, plz)
 
-AESTHETICS/FASHIONS/LIFESTYLE - Cutegore, Scene, Emo, Pastel Goth, Weirdcore, Dreamcore, Internetcore, Cryptidcore, Nightcore, Jirai-Kei, 2020 alt, fleshcore
+AESTHETICS/FASHIONS/LIFESTYLE - Cutegore, Creepy-cute, Scene, Emo, Pastel Goth, Weirdcore, Dreamcore, Internetcore, Cryptidcore, Nightcore, Jirai-Kei, 2020 alt, fleshcore, starfleshcore, traumacore* (trauma isn't an aesthetic, is for the poetry/playlists comforting stuff from this)
 
 TV/MEDIAS - Creepypastas, Marble Hornets, SCP, Spirited Away, Murder Drones, Ninjago, The Amazing Digital Circus, Knight Of Guinevere, K-Pop Demon Hunters, Hazbin Hotel, Helluva Boss, Psychocuties, any horror psychological or ‘fantasy’ movie/series…
 
