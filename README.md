@@ -2,9 +2,6 @@
 
 
 
-INTERACT WITH THIS ENTITY   + YES        or        × NO 
-
-
 *"Am I sane? Have I gone mad? Did my eyes deceive me?"*
 
 Glimpse of our vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
