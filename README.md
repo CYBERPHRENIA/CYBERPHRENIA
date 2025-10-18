@@ -15,7 +15,7 @@ Glimpse of our vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
 
 Your actual Ame-chan/KAngel & Mimikyu fictkin!💕 ((send help) actually no-))
 
-DO NOT COVER, COPY OR CUDDLE! - Taking inspo from my skins is okay, but do not copy or post without having my permission.
+DO NOT COVER, COPY OR CUDDLE! - Ask for cuddles before. Taking inspo from my skins is okay, but do not copy or post without having my permission.
 
 ![image](https://files.catbox.moe/7b71cc.jpeg)
 
