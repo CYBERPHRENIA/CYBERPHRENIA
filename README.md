@@ -11,11 +11,11 @@ Glimpse of our vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
 -->
 🌙/🟢: Online // ⛔️: AFK or busy w/ skins (W2I then)
 
-*Hello internet cherubs, this is Cyberphrenia on the line! You may interact after reading and ask anything if you're curious!* 
+*Hello internet cherubs, this is Cyberphrenia on the line! You may interact after reading.* 
 
 Your actual Ame-chan/KAngel & Mimikyu fictkin!💕 ((send help) actually no-))
 
-DO NOT COVER, COPY OR CUDDLE! - Cuddles are okay as long as there’s C+H in my name. I can accept to be covered from GOOD friends. Taking inspo from my skins is okay, but do not copy or post without having my permission.
+DO NOT COVER, COPY OR CUDDLE! - Taking inspo from my skins is okay, but do not copy or post without having my permission.
 
 ![image](https://files.catbox.moe/7b71cc.jpeg)
 
@@ -57,5 +57,6 @@ RESTART FILE...
 I DO NOT SUPPORT THE ACTIONS OF ANYONE/ANYTHING PROBLEMATIC OBVIOUSLY OR AM PART OF SOME FANDOM, I JUST ENJOY THE CREATIONS.
 
 Except cannibalism maybe-🔪 
+
 
 ![image](https://files.catbox.moe/zq7ryv.jpeg)
