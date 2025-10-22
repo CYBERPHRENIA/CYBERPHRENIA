@@ -22,13 +22,9 @@ DO NOT COVER, COPY OR CUDDLE! - Ask for cuddles before. Taking inspo from my ski
 
 DO NOT INTERACT🔪
 
-× RACISTS, HOMOPHOBES,TRANSPHOBES, SEXISTS, ECT…
-
-× ANTI-FURRIES, ANTITHERIANS OR ANTIALTERHUMANS 
+× RACISTS, HOMOPHOBES,TRANSPHOBES, SEXISTS, ANTIS, ECT…
 
 × TROLLS/CREEPS and such wannabefunny but aren't -3-
-
-× NO RELIGION FORCING, I'm happy with my own as a Satanist and Mother Earth believer
 
 × OVER 20 AND UNDER 15
 
