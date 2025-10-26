@@ -3,9 +3,8 @@
 
 !WIP!
 
-*"EVERYONE IS CONNECTED!"*
+*"EVERYONE IS ALWAYS CONNECTED!"*
 
-Glimpse of our vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
 <!--
 **KANNIBALKUNT/KANNIBALKUNT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
