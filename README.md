@@ -3,7 +3,7 @@
 
 !WIP!
 
-*"Am I sane? Have I gone mad? Did my eyes deceive me?"*
+*"EVERYONE IS CONNECTED!"*
 
 Glimpse of our vibe: https://fr.pinterest.com/Caught_By_A_Fool/core/
 <!--
@@ -45,7 +45,7 @@ TV/MEDIAS - Creepypastas, Marble Hornets, SCP, Spirited Away, Murder Drones, Nin
 
 MANGAS/ANIME - Toilet Bound Hanako-Kun, Demon Slayer, My Hero Academia, Pokemon, Bungou Stray Dog, Gushing Over Magical Girls, Takopi Original Sin, Several Experiments Lain...
 
-GAMES - Doki Doki Literature Club, Needy Streamer Overload, Yandere Simulator, Hollow Knight/Silksong, Pocket Mirror, Minecraft, Zelda Breath Of The Wild, Pokemon Sword And Shield, Genshin Impact, Honkai Star Rail, The Coffin Of Andy And Leyley, Ponytown duh…
+GAMES - Doki Doki Literature Club, Needy Streamer Overload, Yandere Simulator, Hollow Knight/Silksong, Pocket Mirror, Minecraft, Zelda Breath Of The Wild, Pokemon Sword And Shield, No I'm Not A Human, Genshin Impact, Honkai Star Rail, The Coffin Of Andy And Leyley, Ponytown duh…
 
 MUSIC - Jazmin Bean, S3RL, Baby Bugs, Zheanie, Filthshit, Ke$ha, Poppy, Maretu, Aeyesha Erotica, Linkin Park, Penelope Scott, Hatsune Miku, Guchiry, Lady Monster, Melanie Martinez, Suicidal Idol, Biz and more and more and more amd m0re @n& mx:r3 more MORE MORE MORE MORE MORE MORE MORE MORE MORE M&;?!'F&...
 
