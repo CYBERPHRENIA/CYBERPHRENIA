@@ -13,7 +13,7 @@
 
 *Hello internet cherubs, this is Cyberphrenia on the line! You may interact after reading.* 
 
-Your actual Ame-chan/KAngel & Mimikyu fictkin!💕 ((send help) actually no-))
+Your actual Ame-chan/KAngel & Lain fictkin!💕 ((send help) actually no-))
 
 DO NOT COVER, COPY OR CUDDLE! - Ask for cuddles before. Taking inspo from my skins is okay, but do not copy or post without having my permission.
 
