@@ -1,6 +1,6 @@
 ![image](https://files.catbox.moe/c0pxcl.jpeg)
 
-
+![image](https://files.catbox.moe/erjzd7.)
 !WIP!
 
 *"EVERYONE IS ALWAYS CONNECTED!"*
