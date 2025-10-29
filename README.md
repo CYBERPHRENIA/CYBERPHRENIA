@@ -1,6 +1,6 @@
 ![image](https://files.catbox.moe/c0pxcl.jpeg)
 
-![hippo](https://files.catbox.moe/erjzd7.)
+![till](https://files.catbox.moe/erjzd7.)
 
 !WIP!
 
