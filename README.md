@@ -1,6 +1,5 @@
 ![image](https://files.catbox.moe/c0pxcl.jpeg)
 
-![till](https://files.catbox.moe/erjzd7.)
 
 !WIP!
 
