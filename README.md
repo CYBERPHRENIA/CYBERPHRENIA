@@ -13,9 +13,8 @@
 
 *Hello internet cherubs, this is Cyberphrenia on the line! You may interact after reading.* 
 
-Your actual Ame-chan/KAngel & Lain fictkin!💕 ((send help) actually no-))
+Your actual Ame-chan/KAngel,Mimikyu & Lain fictkin!💕 ((send help) actually no-))
 
-DO NOT COVER, COPY OR CUDDLE! - Ask for cuddles before. Taking inspo from my skins is okay, but do not copy or post without having my permission.
 
 ![image](https://files.catbox.moe/7b71cc.jpeg)
 
@@ -27,7 +26,7 @@ DO NOT INTERACT🔪
 
 × OVER 20 AND UNDER 15
 
-× Probably am a proshipper: "*Pro-ship is a philosophy that what you enjoy in the fictional realm does not say anything about your real-world ethical framework. You recognize that people can enjoy things in fiction that they wouldn't endorse in real life. It does NOT mean that you personally enjoy anything and everything in fiction. You can still dislike or be grossed out by things, but you just don't judge or make assumptions about people who do enjoy those things. It's a firmly anti-censorship stance. People are free to explore dark themes!*" NO HARASSMENT TOLERATED
+× Probably am a proshipper: "*Pro-ship is a philosophy that what you enjoy in the fictional realm does not say anything about your real-world ethical framework. You recognize that people can enjoy things in fiction that they wouldn't endorse in real life. It does NOT mean that you personally enjoy anything and everything in fiction. You can still dislike or be grossed out by things, but you just don't judge or make assumptions about people who do enjoy those things. It's a firmly anti-censorship stance. People are free to explore dark themes!*" NO HARASSMENT TOLERATED- SHOO CRUSTY ANTIS!!!
 
 If you're gonna judge my actions in general just DNI, I know I have problems. You're not fixing it by commenting on it.
 
