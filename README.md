@@ -26,7 +26,7 @@ DO NOT INTERACT🔪
 
 × OVER 20 AND UNDER 15
 
-× Probably am a proshipper: "*Pro-ship is a philosophy that what you enjoy in the fictional realm does not say anything about your real-world ethical framework. You recognize that people can enjoy things in fiction that they wouldn't endorse in real life. It does NOT mean that you personally enjoy anything and everything in fiction. You can still dislike or be grossed out by things, but you just don't judge or make assumptions about people who do enjoy those things. It's a firmly anti-censorship stance. People are free to explore dark themes!*" NO HARASSMENT TOLERATED- SHOO CRUSTY ANTIS!!!
+× Am a proshipper: "*Pro-ship is a philosophy that what you enjoy in the fictional realm does not say anything about your real-world ethical framework. You recognize that people can enjoy things in fiction that they wouldn't endorse in real life. It does NOT mean that you personally enjoy anything and everything in fiction. You can still dislike or be grossed out by things, but you just don't judge or make assumptions about people who do enjoy those things. It's a firmly anti-censorship stance. People are free to explore dark themes!*" NO HARASSMENT TOLERATED- SHOO CRUSTY ANTIS!!!
 
 If you're gonna judge my actions in general just DNI, I know I have problems. You're not fixing it by commenting on it.
 
