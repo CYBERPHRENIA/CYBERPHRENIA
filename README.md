@@ -11,12 +11,12 @@
 -->
 🌙/🟢: Online // ⛔️: AFK or busy w/ skins (W2I then)
 
-*Hello internet cherubs, this is Cyberphrenia on the line! You may interact after reading.* 
+*Hello internet cherubs, this is Cyberphrenia on the line! You may interact after reading. I LOVE MY NERDS WAAAA 🥺💕* 
 
 Your actual Ame-chan/KAngel,Mimikyu & Lain fictkin!💕 ((send help) actually no-))
 
 
-![image](https://files.catbox.moe/7b71cc.jpeg)
+₊˚⊹⋆˙౨ৎ˚⟡˖ ࣪
 
 DO NOT INTERACT🔪
 
@@ -30,8 +30,7 @@ DO NOT INTERACT🔪
 
 If you're gonna judge my actions in general just DNI, I know I have problems. You're not fixing it by commenting on it.
 
-![image](https://files.catbox.moe/7b71cc.jpeg)
-
+₊˚⊹⋆˙౨ৎ˚⟡˖ ࣪
 
 INTERESTS🍬
 
