@@ -18,7 +18,7 @@ Your actual Ame-chan/KAngel,Mimikyu & Lain fictkin!💕 ((send help) actually no
 
 ₊˚⊹⋆˙౨ৎ˚⟡˖ ࣪
 
-DO NOT INTERACT🔪
+DO NOT INTERACT🔪 "At least I didn't drive someone to die!! Stinky!!!"
 
 × RACISTS, HOMOPHOBES,TRANSPHOBES, SEXISTS, ANTIS, ECT…
 
@@ -28,11 +28,11 @@ DO NOT INTERACT🔪
 
 × Am a proshipper: "*Pro-ship is a philosophy that what you enjoy in the fictional realm does not say anything about your real-world ethical framework. You recognize that people can enjoy things in fiction that they wouldn't endorse in real life. It does NOT mean that you personally enjoy anything and everything in fiction. You can still dislike or be grossed out by things, but you just don't judge or make assumptions about people who do enjoy those things. It's a firmly anti-censorship stance. People are free to explore dark themes!*" NO HARASSMENT TOLERATED- SHOO CRUSTY ANTIS!!!
 
-If you're gonna judge my actions in general just DNI, I know I have problems. You're not fixing it by commenting on it.
+If you're gonna judge my actions in general just DNI, I know I have problems. You're not fixing it by commenting on it. >:(
 
 ₊˚⊹⋆˙౨ৎ˚⟡˖ ࣪
 
-INTERESTS🍬
+INTERESTS🍬 "CHECKPOINT YOU PASSED! WOWZERRRR!!"
 
 OCS/AU: I love hearing about it and helping for ideas, even do crossovers and/or rp. (plz, plz, plz)
 
@@ -44,9 +44,7 @@ MANGAS/ANIME - Toilet Bound Hanako-Kun, Demon Slayer, My Hero Academia, Pokemon,
 
 GAMES - Doki Doki Literature Club, Needy Streamer Overload, Yandere Simulator, Hollow Knight/Silksong, Pocket Mirror, Minecraft, Zelda Breath Of The Wild, Pokemon Sword And Shield, No I'm Not A Human, Genshin Impact, Honkai Star Rail, The Coffin Of Andy And Leyley, Ponytown duh…
 
-MUSIC - Jazmin Bean, S3RL, Baby Bugs, Zheanie, Filthshit, Ke$ha, Poppy, Maretu, Aeyesha Erotica, Linkin Park, Penelope Scott, Hatsune Miku, Guchiry, Lady Monster, Melanie Martinez, Suicidal Idol, Biz and more and more and more amd m0re @n& mx:r3 more MORE MORE MORE MORE MORE MORE MORE MORE MORE M&;?!'F&...
-
-RESTART FILE...
+MUSIC - Jazmin Bean, S3RL, Baby Bugs, Zheanie, Filthshit, Ke$ha, Poppy, Maretu, Ayesha Erotica, Linkin Park, Penelope Scott, Hatsune Miku, Guchiry, Lady Monster, Melanie Martinez, Suicidal Idol, Biz and more.. ITS AN ADDICTION! （≧∇≦）
 
 I DO NOT SUPPORT THE ACTIONS OF ANYONE/ANYTHING PROBLEMATIC OBVIOUSLY OR AM PART OF SOME FANDOM, I JUST ENJOY THE CREATIONS.
 
