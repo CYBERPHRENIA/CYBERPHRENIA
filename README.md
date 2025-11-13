@@ -6,19 +6,20 @@
 **"EVERYONE IS ALWAYS CONNECTED!"**
 
 
-<div align="center">*Hello internet cherubs, this is Cyberphrenia on the line! You may interact after reading. I LOVE MY NERDS WAAAA 🥺💕*
 
-Your actual Ame-chan/KAngel,Mimikyu & Lain fictkin!💕 ((send help) actually no-))
+<div align="center">Hello internet cherubs, this is Cyberphrenia on the line! You may interact after reading. I LOVE MY NERDS WAAAA 🥺💕
+
+*Your actual Ame-chan/KAngel,Mimikyu & Lain fictkin!*
   
 ₊˚⊹⋆˙౨ৎ˚⟡˖ ࣪
 
-If you're gonna judge my actions in general just DNI, I know I have problems and am a problematic person! What did you expect? You're not fixing it by commenting on it!
+*If you're gonna judge my actions in general just DNI, I know I have problems and am a problematic person! What did you expect? You're not fixing it by commenting on it!*
 
 ₊˚⊹⋆˙౨ৎ˚⟡˖ ࣪
 
 **MAIN INTERESTS!!**
 
-🍬GENERALLY HORROR MEDIAS, PSYCHOANALYSIS IS MY GUILTY-PLEASURE🍬
+💕GENERALLY HORROR MEDIAS, PSYCHOANALYSIS IS MY GUILTY-PLEASURE💕
 
 SHOWS/MEDIAS- Creepypastas, Marble Hornets, SCP, Spirited Away, Murder Drones, Ninjago, The Amazing Digital Circus, Knight Of Guinevere, Psychocuties, Toilet Bound Hanako-Kun, Demon Slayer, Pokemon, Gushing Over Magical Girls, Several Experiments Lain,
 
