@@ -3,7 +3,7 @@
 
 !WIP!
 
-*"EVERYONE IS ALWAYS CONNECTED!"*
+<div aligne*EVERYONE IS ALWAYS CONNECTED!*="center">
 
 <!--
 **KANNIBALKUNT/KANNIBALKUNT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -11,24 +11,17 @@
 -->
 🌙/🟢: Online // ⛔️: AFK or busy w/ skins (W2I then)
 
-*Hello internet cherubs, this is Cyberphrenia on the line! You may interact after reading. I LOVE MY NERDS WAAAA 🥺💕* 
+<div align*Hello internet cherubs, this is Cyberphrenia on the line! You may interact after reading. I LOVE MY NERDS WAAAA 🥺💕*="center"> 
 
 Your actual Ame-chan/KAngel,Mimikyu & Lain fictkin!💕 ((send help) actually no-))
 
 
-₊˚⊹⋆˙౨ৎ˚⟡˖ ࣪
+<div align₊˚⊹⋆˙౨ৎ˚⟡˖ ࣪="center">
 
-DO NOT INTERACT🔪 "At least I didn't drive someone to die!! Stinky!!!"
-
-× RACISTS, HOMOPHOBES,TRANSPHOBES, SEXISTS, ANTIS, ECT…
-
-× TROLLS/CREEPS and such wannabefunny but aren't -3-
-
-× OVER 20 AND UNDER 15
 
 × Am a proshipper: "*Pro-ship is a philosophy that what you enjoy in the fictional realm does not say anything about your real-world ethical framework. You recognize that people can enjoy things in fiction that they wouldn't endorse in real life. It does NOT mean that you personally enjoy anything and everything in fiction. You can still dislike or be grossed out by things, but you just don't judge or make assumptions about people who do enjoy those things. It's a firmly anti-censorship stance. People are free to explore dark themes!*" NO HARASSMENT TOLERATED- SHOO CRUSTY ANTIS!!!
 
-If you're gonna judge my actions in general just DNI, I know I have problems. You're not fixing it by commenting on it. >:(
+If you're gonna judge my actions in general just DNI, I know I have problems and am a problematic person! What did you expect? You're not fixing it by commenting on it!
 
 ₊˚⊹⋆˙౨ৎ˚⟡˖ ࣪
 
