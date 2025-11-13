@@ -3,42 +3,37 @@
 
 !WIP!
 
-<div aligne="center">*"EVERYONE IS ALWAYS CONNECTED!"*
+**"EVERYONE IS ALWAYS CONNECTED!"**
 
-<!--
-**KANNIBALKUNT/KANNIBALKUNT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub 
 
 <div align="center">*Hello internet cherubs, this is Cyberphrenia on the line! You may interact after reading. I LOVE MY NERDS WAAAA 🥺💕*
 
-<div aligne="center">Your actual Ame-chan/KAngel,Mimikyu & Lain fictkin!💕 ((send help) actually no-))
-
-
-<div align="center">₊˚⊹⋆˙౨ৎ˚⟡˖ ࣪
-
-
-× Am a proshipper: "*Pro-ship is a philosophy that what you enjoy in the fictional realm does not say anything about your real-world ethical framework. You recognize that people can enjoy things in fiction that they wouldn't endorse in real life. It does NOT mean that you personally enjoy anything and everything in fiction. You can still dislike or be grossed out by things, but you just don't judge or make assumptions about people who do enjoy those things. It's a firmly anti-censorship stance. People are free to explore dark themes!*" NO HARASSMENT TOLERATED- SHOO CRUSTY ANTIS!!!
+Your actual Ame-chan/KAngel,Mimikyu & Lain fictkin!💕 ((send help) actually no-))
+  
+₊˚⊹⋆˙౨ৎ˚⟡˖ ࣪
 
 If you're gonna judge my actions in general just DNI, I know I have problems and am a problematic person! What did you expect? You're not fixing it by commenting on it!
 
 ₊˚⊹⋆˙౨ৎ˚⟡˖ ࣪
 
-INTERESTS🍬 "CHECKPOINT YOU PASSED! WOWZERRRR!!"
+**MAIN INTERESTS!!**
 
-OCS/AU: I love hearing about it and helping for ideas, even do crossovers and/or rp. (plz, plz, plz)
+🍬GENERALLY HORROR MEDIAS, PSYCHOANALYSIS IS MY GUILTY-PLEASURE🍬
 
-AESTHETICS/FASHIONS/LIFESTYLE - Cutegore, Creepy-cute, Scene, Emo, Pastel Goth, Weirdcore, Dreamcore, Internetcore, Cryptidcore, Nightcore, Jirai-Kei, 2020 alt, fleshcore, starfleshcore, traumacore* (trauma isn't an aesthetic, is for the poetry/playlists comforting stuff from this)
+SHOWS/MEDIAS- Creepypastas, Marble Hornets, SCP, Spirited Away, Murder Drones, Ninjago, The Amazing Digital Circus, Knight Of Guinevere, Psychocuties, Toilet Bound Hanako-Kun, Demon Slayer, Pokemon, Gushing Over Magical Girls, Several Experiments Lain,
 
-TV/MEDIAS - Creepypastas, Marble Hornets, SCP, Spirited Away, Murder Drones, Ninjago, The Amazing Digital Circus, Knight Of Guinevere, K-Pop Demon Hunters, Psychocuties, any horror psychological or ‘fantasy’ movie/series…
+GAMES- Doki Doki Literature Club, Needy Streamer Overload, Yandere Simulator, Hollow Knight/Silksong, Pocket Mirror, Minecraft, Zelda Breath Of The Wild, No I'm Not A Human,The Coffin Of Andy And Leyley
 
-MANGAS/ANIME - Toilet Bound Hanako-Kun, Demon Slayer, My Hero Academia, Pokemon, Bungou Stray Dog, Gushing Over Magical Girls, Takopi Original Sin, Several Experiments Lain...
+MUSIC- Jazmin Bean, S3RL, Baby Bugs, Zheanie, Filthshit, Maretu, Ayesha Erotica, Linkin Park, Penelope Scott, Hatsune Miku, Lady Monster, Suicidal Idol, Luluyam and more.. ITS AN ADDICTION! 
 
-GAMES - Doki Doki Literature Club, Needy Streamer Overload, Yandere Simulator, Hollow Knight/Silksong, Pocket Mirror, Minecraft, Zelda Breath Of The Wild, Pokemon Sword And Shield, No I'm Not A Human, Genshin Impact, Honkai Star Rail, The Coffin Of Andy And Leyley, Ponytown duh…
-
-MUSIC - Jazmin Bean, S3RL, Baby Bugs, Zheanie, Filthshit, Ke$ha, Poppy, Maretu, Ayesha Erotica, Linkin Park, Penelope Scott, Hatsune Miku, Guchiry, Lady Monster, Melanie Martinez, Suicidal Idol, Biz and more.. ITS AN ADDICTION! （≧∇≦）
-
-I DO NOT SUPPORT THE ACTIONS OF ANYONE/ANYTHING PROBLEMATIC OBVIOUSLY OR AM PART OF SOME FANDOM, I JUST ENJOY THE CREATIONS.
+I DO NOT SUPPORT THE ACTIONS OF ANYONE/ANYTHING BAD OBVIOUSLY! PURE ENJOYMENT <3
 
 Except cannibalism maybe-🔪 
 
 
 ![image](https://files.catbox.moe/zq7ryv.jpeg)
+
+
+<!--
+**KANNIBALKUNT/KANNIBALKUNT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub 
+
