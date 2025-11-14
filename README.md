@@ -1,12 +1,5 @@
 ![image](https://files.catbox.moe/ksun9c.jpeg)
 
-
-!WIP!
-
-
-
-
-
 <div align="center"> 
 
 
@@ -30,8 +23,8 @@
 **MAIN INTERESTS!!**![image](https://github.com/user-attachments/assets/74a32f60-6e43-4217-a2d6-0bcae66d654b)
 
 
-![image](https://github.com/user-attachments/assets/4b8eecd9-a29d-466b-93f7-b83eb77aa37c)
-GENERALLY HORROR MEDIAS, PSYCHOANALYSIS IS MY GUILTY-PLEASURE ![image](https://github.com/user-attachments/assets/aef9bb62-1a0f-4655-b321-7ac195dca60f)
+
+GENERALLY HORROR MEDIAS, PSYCHOANALYSIS IS MY GUILTY-PLEASURE 
 
 
 SHOWS/MEDIAS- Creepypastas, Marble Hornets, SCP, Spirited Away, Murder Drones, Ninjago, The Amazing Digital Circus, Knight Of Guinevere, Psychocuties, Toilet Bound Hanako-Kun, Demon Slayer, Pokemon, Gushing Over Magical Girls, Several Experiments Lain,
@@ -44,14 +37,13 @@ MUSIC- Jazmin Bean, S3RL, Baby Bugs, Zheanie, Filthshit, Maretu, Ayesha Erotica,
 
 *Except cannibalism maybe~*
 
+!WIP!
 
 ![image](https://github.com/user-attachments/assets/b2b551d6-ea30-45e9-902f-600a4b418107) <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/98fbf01b-98af-4834-bed9-f66bb025013b" /> ![image](https://github.com/user-attachments/assets/cc08fa0c-0493-48e2-a6fb-eba20e874d34) ![image](https://github.com/user-attachments/assets/83a4d793-fe61-46c7-891e-dbac6f45e194) ![image](https://github.com/user-attachments/assets/5b338013-5a65-4306-ab43-f232c53165c1) ![image](https://64.media.tumblr.com/c8f0ef3e0babdc578632ae5b0c2173d9/6ad1ec31bad5887a-bb/s250x400/8451f509e468205f116d8faef2b72f88ea793094.webp) ![image](https://github.com/user-attachments/assets/53260f22-acb9-4398-af77-be2fff000d01)
 
 
 
-
-
-
+![image](https://files.catbox.moe/77gxjg.jpeg)
 
 <!--
 **KANNIBALKUNT/KANNIBALKUNT** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub 
