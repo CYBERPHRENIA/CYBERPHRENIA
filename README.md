@@ -1,4 +1,4 @@
-![image](https://files.catbox.moe/c0pxcl.jpeg)
+![image](https://files.catbox.moe/agqvo5.jpeg)
 
 
 !WIP!
@@ -32,7 +32,6 @@ I DO NOT SUPPORT THE ACTIONS OF ANYONE/ANYTHING BAD OBVIOUSLY! PURE ENJOYMENT <3
 Except cannibalism maybe-🔪 
 
 
-![image](https://files.catbox.moe/zq7ryv.jpeg)
 
 
 <!--
