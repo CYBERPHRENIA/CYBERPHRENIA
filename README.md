@@ -3,23 +3,25 @@
 
 !WIP!
 
-**"EVERYONE IS ALWAYS CONNECTED!"**
 
 
 
 
 <div align="center"> 
+
+
+**"EVERYONE IS ALWAYS CONNECTED!"**
   
-![image](https://github.com/user-attachments/assets/e41cad89-4dfb-4075-ace7-d309cf0ddb5a)
-Hello internet cherubs, this is Cyberphrenia on the line! You may interact after reading. I LOVE MY NERDS WAAAA!!! ![image](https://github.com/user-attachments/assets/d0003f7b-c33a-4952-9ede-17f315f65d63)
+
+*Hello internet cherubs, this is Cyberphrenia on the line! You may interact after reading. I LOVE MY NERDS WAAAA!!!*
 
   
-![image](https://github.com/user-attachments/assets/74a32f60-6e43-4217-a2d6-0bcae66d654b) *Your actual Ame-chan/KAngel,Mimikyu & Lain fictkin!* ![image](https://github.com/user-attachments/assets/74a32f60-6e43-4217-a2d6-0bcae66d654b)
+![image](https://github.com/user-attachments/assets/74a32f60-6e43-4217-a2d6-0bcae66d654b) *Your actual Ame-chan/KAngel,Mimikyu & Lain fictkin! (ULTIMATE: PROBLEMATIC <3)* ![image](https://github.com/user-attachments/assets/74a32f60-6e43-4217-a2d6-0bcae66d654b)
   
 ₊˚⊹⋆˙౨ৎ˚⟡˖ ࣪
 
-![image](https://github.com/user-attachments/assets/e690b70a-0277-407d-a2ac-496b43c68cf7)
-*If you're gonna judge my actions in general just DNI, I know I have problems and am a problematic person! What did you expect? You're not fixing it by commenting on it!* ![image](https://github.com/user-attachments/assets/e9e1768e-8a12-482d-89f9-f3ab023b6f8f)
+
+![image](https://github.com/user-attachments/assets/50326b3e-9ce4-4dcc-af10-c693f60d4623)IF YOU'RE GONNA JUDGE MY ACTIONS IN GENERAL JUST DNI, I KNOW I HAVE PROBLEMS. YOU'RE NOT FIXING IT BY COMMENTING ON IT!
 
 
 ₊˚⊹⋆˙౨ৎ˚⟡˖ ࣪
@@ -38,7 +40,7 @@ GAMES- Doki Doki Literature Club, Needy Streamer Overload, Yandere Simulator, Ho
 
 MUSIC- Jazmin Bean, S3RL, Baby Bugs, Zheanie, Filthshit, Maretu, Ayesha Erotica, Linkin Park, Penelope Scott, Hatsune Miku, Lady Monster, Suicidal Idol, Luluyam and more.. ITS AN ADDICTION! 
 
-I DO NOT SUPPORT THE ACTIONS OF ANYONE/ANYTHING BAD OBVIOUSLY! PURE ENJOYMENT <3
+![image](https://github.com/user-attachments/assets/50326b3e-9ce4-4dcc-af10-c693f60d4623)I DO NOT SUPPORT THE ACTIONS OF ANYONE/ANYTHING BAD OBVIOUSLY! PURE ENJOYMENT <3
 
 *Except cannibalism maybe~*
 
