@@ -30,7 +30,7 @@
 GENERALLY HORROR MEDIAS, PSYCHOANALYSIS IS MY GUILTY-PLEASURE 
 
 
-SHOWS/MEDIAS- Creepypastas, Marble Hornets, SCP, Spirited Away, Murder Drones, Ninjago, The Amazing Digital Circus, Knight Of Guinevere, Psychocuties, Toilet Bound Hanako-Kun, Demon Slayer, Pokemon, Gushing Over Magical Girls, Several Experiments Lain,
+SHOWS/MEDIAS- Creepypastas, Marble Hornets, SCP, Spirited Away, Murder Drones, Ninjago, The Amazing Digital Circus, Knight Of Guinevere, Psychocuties, Toilet Bound Hanako-Kun, Demon Slayer, Pokemon, Gushing Over Magical Girls, Several Experiments Lain, My Hero Academia
 
 GAMES- Doki Doki Literature Club, Needy Streamer Overload, Yandere Simulator, Hollow Knight/Silksong, Pocket Mirror, Minecraft, Zelda Breath Of The Wild, No I'm Not A Human,The Coffin Of Andy And Leyley, Genshin Impact & Honkai Star Rail
 
