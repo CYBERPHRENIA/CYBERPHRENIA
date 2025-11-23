@@ -9,7 +9,7 @@
 *Hello internet cherubs, this is Cyberphrenia on the line! You may interact after reading. I LOVE MY NERDS WAAAA!!!*
 
   
-![image](https://github.com/user-attachments/assets/74a32f60-6e43-4217-a2d6-0bcae66d654b) *Your actual Ame-chan/KAngel,Mimikyu & Lain fictkin!* ![image](https://github.com/user-attachments/assets/74a32f60-6e43-4217-a2d6-0bcae66d654b)
+![image](https://github.com/user-attachments/assets/74a32f60-6e43-4217-a2d6-0bcae66d654b) *Your actual Ame-chan/KAngel & Lain fictkin!* ![image](https://github.com/user-attachments/assets/74a32f60-6e43-4217-a2d6-0bcae66d654b)
 
 ![image](https://github.com/user-attachments/assets/c66d227e-2979-4751-9958-8bc9542af3ef)
 
