@@ -36,7 +36,7 @@ GAMES- Doki Doki Literature Club, Needy Streamer Overload, Yandere Simulator, Ho
 
 MUSIC- Jazmin Bean, S3RL, Baby Bugs, Zheanie, Filthshit, Maretu, Ayesha Erotica, Margø, Poppy, Linkin Park, Penelope Scott, Hatsune Miku, Lady Monster, Suicidal Idol, Luluyam and more.. ITS AN ADDICTION! 
 
-![image](https://github.com/user-attachments/assets/50326b3e-9ce4-4dcc-af10-c693f60d4623)I DO NOT SUPPORT THE ACTIONS OF ANYONE/ANYTHING BAD OBVIOUSLY! PURE ENJOYMENT <3
+![image](https://github.com/user-attachments/assets/50326b3e-9ce4-4dcc-af10-c693f60d4623)I DO NOT SUPPORT THE ACTIONS OF ANYONE/ANYTHING BAD OBVIOUSLY!
 
 *Except cannibalism maybe~*
 
