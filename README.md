@@ -1,4 +1,4 @@
-![image](https://files.catbox.moe/ksun9c.jpeg)
+![image](https://img.sanishtech.com/u/60436e4b5839a5bbaf79808337558459.jpg)
 
 <div align="center"> 
 
